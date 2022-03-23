@@ -1,1 +1,1 @@
-# Look on my works, ye Mighty, and despair!
+Look on my works, ye Mighty, and despair!
